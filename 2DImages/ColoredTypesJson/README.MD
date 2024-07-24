@@ -14,7 +14,3 @@
 
 
 
-
-
-
-https://innovations.kh.ua/images/2dimages/coloredtypesjson/colored_types_json.php?t=1
